@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @slimesa
+- 👋 Hi, I’m @slimesa(isaac)
 - 👀 I’m interested in watching anime
 - 🌱 I’m currently learning website development
 - 💞️ I’m looking to collaborate on 
